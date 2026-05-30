@@ -1,5 +1,5 @@
 # Hi 👋, I'm Nakul Maheshwari
-**AI-Based Developer || Startup Enthusiast**
+**Vibe Coder || AI Based Developer || Startup Enthusiast**
 
 Email Me 👉 ✉️ **maheshwarinakul04@gmail.com** For Collaboration/Project or Anything Else.
 
